@@ -1,1 +1,0 @@
-# kotaroohi.github.io
